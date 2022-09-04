@@ -30,4 +30,4 @@ You can Also Use My Tool [SOCKER](https://github.com/ADX-CYBER/PROXY-List) To ch
 ## CONTACT
 
  For Any Queries:  
-        Ping Me : [WhatsApp](http://t.me/Rifat_Chy)
+        Ping Me : [Telegram](http://t.me/Rifat_Chy)
